@@ -27,3 +27,5 @@ FEEL FREE TO CONTACT ME:
 Email: umeryousuf26@gmail.com 
 Twitter: https://twitter.com/top_djinn
 Linkedin: https://www.linkedin.com/in/umer-yousuf/
+WEB 3.0 Portfolio: https://shorturl.at/bsMOX
+WEB 2.0 Resume: https://shorturl.at/ABEJV
